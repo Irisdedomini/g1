@@ -1,3 +1,3 @@
-# g1
-
+# Grupo 1
+Brenda Coronel
 iriss
